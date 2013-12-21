@@ -1,6 +1,0 @@
-blacktinda
-
-----------
-----------
-
-just one try
